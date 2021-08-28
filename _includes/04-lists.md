@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+- Bonchon Chicken 😄
+  - honey garlic flavor
+- Kungfu Tea 🎉
+  - bubble milk tea
+  - taro milk
